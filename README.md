@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrTarik2112
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Guı coding
+- ⚡ Fun fact: I Like Playing Video Games
